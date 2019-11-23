@@ -14,3 +14,6 @@ Q: Tell us about you.
 Ans: i am very intersting about android technology and work hard for smart living :)
       having good knowledge on coding.
       
+      
+ rights and copyright @anand 
+      
